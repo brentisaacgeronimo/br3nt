@@ -10,6 +10,7 @@ Litterbox is a website providing daily film recommendation in an easy and access
 >
 *"We don't ask for life. We have it thrust upon us."*
 >
+
 Directed by Tony Richardson, this story centers around a working class girl who struggles to create a life for herself with her gay co-worker after becoming pregnant from a one-night stand with a black sailor. Rita Tushingham, known for her works in The Knack ...and How to Get It, The Bed Sitting Room and most recently Last Night in Soho, and Murray Melvin, known for his works in Sparrows Can't Sing and Barry Landon, star in this beloved classic. This film embarks on the spotlight for gritty lower class people and shines on their problems. Every shot is remarkable and this film transports you to a world of realism. Very appropriate for today's world.
 
 ### Wings of Desire (1987)
@@ -34,10 +35,16 @@ A Wes Anderson classic follows the lives of three gifted siblings who experience
 <iframe width="560" height="315" src="https://www.youtube.com/embed/94rtEPIifpc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 >
-*"I have so much to do. I think I’ll probably read Proust … Because sometimes it’s good to do what you’re supposed to do when you’re supposed to do it."*
-
+*"I have so much to do. I think I’ll probably read Proust.. because sometimes it’s good to do what you’re supposed to do when you’re supposed to do it."*
+>
 
 Written and directed by Noah Baumbach, who also directed Marriage Story and Mistress America, Frances Ha tells the story of an aspiring dancer moves to New York City and becomes caught up in a whirlwind of flighty fair-weather friends, diminishing fortunes and career setbacks. Greta Gerwig who co-wrote and stars in the film embarked the screen with fiery and relatable emotions as she steps into the shoes of a dreamer. Viewers can connnect with this film in a personal way as the cinematography and screenplay are remarkable. Aesthetically pleasing as every scene displays stunning shots of the landmarks. The black-and-white theme just goes along well with the story and is set to give the audience eighty-six minutes of well-used time.
 
+### The Fallout (2021)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Gtl-6RCOl84" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+>
+*"So last night I was like, okay, why did I survive? Like out everyone, why me?"*
+>
 
+A directoral debut by actress Megan Park, this teen drama film stars Jenna Ortega as Vada Cavell, a high school student who navigates significant emotional trauma following a school shooting. Vada, together with Mia and Quinton, form a unique and dynamic bond as they navigate the never linear, often confusing journey to heal in a world that feels forever changed. Favorite film of 2021. This story gets me. The representation of teenagers as they go through tough tragedies is well executed especially made by a first time independent filmmaker. The score was great. The scene in the bathroom where gunshots were heard from the halls was terrifying and surreal. A great message about peace delivered  as we experience chaos in our world. Jenna Ortega was fantastic and is so talented and her performance had me in awe. Overall, the film is a must-watch.
