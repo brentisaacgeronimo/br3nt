@@ -8,7 +8,16 @@ Litterbox is a website providing daily film recommendation in an easy and access
 <iframe width="560" height="315" src="https://www.youtube.com/embed/y7LK_-rUfdU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 >
-*"WE DON’T ASK FOR LIFE. WE HAVE IT THRUST UPON US."*
+*"We don't ask for life. We have it thrust upon us."*
 >
 Directed by Tony Richardson, this story centers around a working class girl who struggles to create a life for herself with her gay co-worker after becoming pregnant from a one-night stand with a black sailor. Rita Tushingham, known for her works in The Knack ...and How to Get It, The Bed Sitting Room and most recently Last Night in Soho, and Murray Melvin, known for his works in Sparrows Can't Sing and Barry Landon, star in this beloved classic. This film embarks on the spotlight for gritty lower class people and shines on their problems. Every shot is remarkable and this film transports you to a world of realism. Very appropriate for today's world.
+
+### Wings of Desire (1987)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6r4uo4lb4h0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+>
+*"Why am I me and why not you? Why am I here and why not there? When did the time begin and when does space end?"*
+>
+
+A romantic fantasy film directed by Wim Wenders about invisible, immortal angels who populate Berlin and listen to the thoughts of its human inhabitants, comforting the distressed. Even though the city is densely populated, many of the people are isolated or estranged from their loved ones. One of the angels, played by Bruno Ganz, falls in love with a beautiful, lonely trapeze artist, played by Solveig Dommartin. The angel chooses to become mortal so that he can experience human sensory pleasures, ranging from enjoying food to touching a loved one, and so that he can discover human love with the trapeze artist. This film provides the viewers with a very powerful theme that embraces life beyond humanity and touches each viewers with an ounce of hope to a second life. Beautifully shot and a great follow-up from Wenders' previous film, Paris, Texas.
 
