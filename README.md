@@ -30,3 +30,14 @@ A romantic fantasy film directed by Wim Wenders about invisible, immortal angels
 
 A Wes Anderson classic follows the lives of three gifted siblings who experience great success in youth, and even greater disappointment and failure in adulthood. The children's eccentric father Royal Tenenbaum, played by Gene Hackman, leaves them in their adolescent years, then returns to them after they have grown, falsely claiming he has a terminal illness as he works on reconciling with his children and ex-wife. The film is astounding. Stunning shots, wonderful acting with a stellar script. The style of Wes Anderson never lets the viewers down as he provides each scene with a purpose. Gritting and jaw-breaking. Wes Anderson proves to be a modern day auteur.
 
+### Frances Ha (2012)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/94rtEPIifpc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+>
+*"I have so much to do. I think I’ll probably read Proust … Because sometimes it’s good to do what you’re supposed to do when you’re supposed to do it."*
+
+
+Written and directed by Noah Baumbach, who also directed Marriage Story and Mistress America, Frances Ha tells the story of an aspiring dancer moves to New York City and becomes caught up in a whirlwind of flighty fair-weather friends, diminishing fortunes and career setbacks. Greta Gerwig who co-wrote and stars in the film embarked the screen with fiery and relatable emotions as she steps into the shoes of a dreamer. Viewers can connnect with this film in a personal way as the cinematography and screenplay are remarkable. Aesthetically pleasing as every scene displays stunning shots of the landmarks. The black-and-white theme just goes along well with the story and is set to give the audience eighty-six minutes of well-used time.
+
+
+
