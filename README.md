@@ -48,3 +48,6 @@ Written and directed by Noah Baumbach, who also directed Marriage Story and Mist
 >
 
 A directoral debut by actress Megan Park, this teen drama film stars Jenna Ortega as Vada Cavell, a high school student who navigates significant emotional trauma following a school shooting. Vada, together with Mia and Quinton, form a unique and dynamic bond as they navigate the never linear, often confusing journey to heal in a world that feels forever changed. Favorite film of 2021. This story gets me. The representation of teenagers as they go through tough tragedies is well executed especially made by a first time independent filmmaker. The score was great. The scene in the bathroom where gunshots were heard from the halls was terrifying and surreal. A great message about peace delivered  as we experience chaos in our world. Jenna Ortega was fantastic and is so talented and her performance had me in awe. Overall, the film is a must-watch.
+
+## Links
+[My Letterboxd](https://letterboxd.com/brenty/)
